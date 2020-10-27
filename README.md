@@ -1,1 +1,0 @@
-# Done by Dmytro Boychenko
